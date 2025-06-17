@@ -5,7 +5,7 @@
 
 - 📝 I regularly write articles on [https://tikamthegreat.netlify.app/](https://tikamthegreat.netlify.app/)
 
-- 📫 How to reach me **TTIKAM31@GMAIL.COM**
+- 📫 How to reach me **ttikam31@gmail.COM**
 
 - 📄 Know about my experiences [https://tikamthegreat.netlify.app/](https://tikamthegreat.netlify.app/)
 
